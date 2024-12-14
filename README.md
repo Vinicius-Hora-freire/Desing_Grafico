@@ -1,2 +1,3 @@
 # Canva e Photoshop
-**Neste repositório, compartilho um pouco das minhas habilidades com as ferramentas Photoshop e Canva. Explore e descubra meu trabalho criativo e as soluções de design que posso oferecer..🚀🖼️**
+**Nas pastas acima, apresento um pouco do que aprendi utilizando as ferramentas Canva e Photoshop. Só foi possivel graças a muito estudo e continuo aprimoramento.🚀**
+
